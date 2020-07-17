@@ -1,5 +1,5 @@
 # 山水情缘
-water and mountain which i like most
+寄情山水 潇洒一生
 
 **青山绿水，幽印于心**
 -----------------
